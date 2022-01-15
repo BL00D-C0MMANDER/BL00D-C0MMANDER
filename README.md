@@ -1,3 +1,3 @@
-► Hi, I’m @BL00D-C0MMANDER
+► Hi, I’m Debanko Sinha
 ► I’m interested in Anime and Coding
 ► I’m currently learning Cyber Security 
