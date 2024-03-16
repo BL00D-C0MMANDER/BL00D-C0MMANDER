@@ -1,3 +1,1 @@
-► Hi, I’m Debanko Sinha
-► I’m interested in Anime and Coding
-► I’m currently learning Cyber Security 
+I am a student at MAKAUT WB, pursuing B.Sc. in IT with specialization as Cyber Security. I am flexible  in Python Coding and have interests in the fields of Cyber Security  and Digital Forensics.
